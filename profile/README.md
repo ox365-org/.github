@@ -1,1 +1,1 @@
-OX365 provides secure IT services to the financial services sector.
+OX365 provides secure IT services specializing in the financial services sector.
